@@ -1,4 +1,3 @@
-Aqui fica a descriçao do projeto, o pq eu criei ele, como ele funciona e tudo mais.
+Eu irei contruir um dia os gigantes de aço e irei criar o novo mais famoso esporte do mundo.
 
-Para resumo são todas as informações/intruções sobre o projeto.
-
+Isso vai ser muito irado.
